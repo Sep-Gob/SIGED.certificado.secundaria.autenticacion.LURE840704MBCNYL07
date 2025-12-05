@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.LURE840704MBCNYL07
+LURE840704MBCNYL07
